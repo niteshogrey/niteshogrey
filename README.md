@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **MERN Technology**
 
-- 📫 How to reach me **ogreynitesh1102@gmail.com**
+- 📫 How to reach me **niteshwork23@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/1lvs8G9ooOyRuXC4C2tY5m3NMvcylZDzD](https://drive.google.com/drive/folders/1lvs8G9ooOyRuXC4C2tY5m3NMvcylZDzD)
 
